@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **1757sumitkumar@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1q8dC_-rkUJqyW0fDgYJONRsn4HdAzY40/view?usp=drive_link](https://drive.google.com/file/d/1q8dC_-rkUJqyW0fDgYJONRsn4HdAzY40/view?usp=drive_link)
+- 📄 Know about my experiences [https://cv-sumit.tiiny.site](https://cv-sumit.tiiny.site)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
